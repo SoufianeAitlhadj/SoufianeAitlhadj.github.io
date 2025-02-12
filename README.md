@@ -1,5 +1,3 @@
-# SoufianeAitlhadj.github.io
-Me thinking..
 
 # Principles of Life: A Perspective
 
