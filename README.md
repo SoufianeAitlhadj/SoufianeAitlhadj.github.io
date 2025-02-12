@@ -1,5 +1,5 @@
-
 # Principles of Life: A Perspective
+(written at 27 Nov 2024 and published at 12 Feb 2025)
 
 I recently picked up Ray Dalio's *Principles* (first edition), and for the first time in ages, I felt like I wasn't just reading another run-of-the-mill 'self-help' book. This one isn't full of fluff. The introduction is incredibly convincing about the importance of having principles to succeed in life. He nailed the opening. Here's a quote:
 
